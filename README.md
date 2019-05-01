@@ -16,3 +16,10 @@ I...had............
 </font>
 ***
 ##<font size="2"><font color="violet">☆ーーーーかまぼこっておいしいですよね！</font>
+
+## Shoichi is Tamagoyaki
+
+- wahahahaha
+    - uhuhuhuhuhu
+    - ehehehehehehe
+
